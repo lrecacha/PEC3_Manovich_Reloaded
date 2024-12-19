@@ -1,4 +1,4 @@
-# PEC 3: Manovich Reloaded 
+# PEC 3: Redescobrint la Hibridació 
 
 ### Recurs d'aprenentatge de Cultura Digital
 
